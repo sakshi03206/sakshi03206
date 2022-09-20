@@ -9,3 +9,7 @@
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
+Hey its me Sakshi.
+I am a web coder/designer.
+I love coding
+
